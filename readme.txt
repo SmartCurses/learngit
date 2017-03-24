@@ -1,2 +1,3 @@
-Git is a luanluanluan system.
+Git is a God system.
 Git is free software.
+Git is free  niuBi.
